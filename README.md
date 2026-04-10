@@ -14,5 +14,5 @@
 <div align="center">
 times i've been featured on a ponytown hitlist: 1
 <div></div>
-times internet tough guys have successfully physically harmed me in ways that validate their online threats: 0
+times internet anons have successfully physically harmed me in ways that validate their online threats: 0
 <div align="center">
