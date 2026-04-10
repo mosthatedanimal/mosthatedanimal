@@ -6,7 +6,7 @@
 <b>FOOD CHAINS MOST WANTED</b>
     <div align="center" style="max-width: 300px; margin: 0 auto;">
     </div>
-      world's most hated animal!!! 9teeth years old, name pronouns, lesbian. dni if you're scared of art, as well as trans people who's identity can't be summarised by steven universe character tropes or reddit femboy memes.
+      9teeth years old, name pronouns, lesbian. dni if you're scared of art, as well as trans people who's identity can't be summarised by steven universe character tropes or reddit femboy memes.
   <div align="center">
 <img src="https://64.media.tumblr.com/c9f21e2cd6f5faf552d183233e1f994d/be1a0ac4e48e3c6d-d3/s2048x3072/bd199a272f12e401693ca1af49885800ee27b3f4.pnj" width="40%"/>
     <div align="center">
