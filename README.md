@@ -6,6 +6,12 @@
 <b>FOOD CHAINS MOST WANTED</b>
     <div align="center" style="max-width: 300px; margin: 0 auto;">
     </div>
+   i can make it to the gate in 2.5 seconds . . . <i>can you?</i>
+    <div align="center" style="max-width: 300px; margin: 0 auto;">
+    </div>
+   <img src="https://static.vecteezy.com/system/resources/thumbnails/075/790/060/small/vampire-fangs-and-human-teeth-with-gums-isolated-on-transparent-background-png.png" width="6%"/>
+   <div align="center" style="max-width: 300px; margin: 0 auto;">
+    </div>
       dni if you're scared of art, as well as trans people who's identity can't be summarised by steven universe character tropes or reddit femboy memes.
    <div align="center">
    times i've been featured on a ponytown hitlist: 1
