@@ -9,7 +9,7 @@
    <img src="https://static.vecteezy.com/system/resources/thumbnails/075/790/060/small/vampire-fangs-and-human-teeth-with-gums-isolated-on-transparent-background-png.png" width="10%"/>
    <div align="center" style="max-width: 300px; margin: 0 auto;">
     </div>
-      dni if you're scared of art that isn't palatable or commercialised, if you feel threatened by trans people who's identity can't be summarised by a children's cartoon character, or if your politics begin and end with what is 'respectable' and what is 'valid'. i am an <b>extremely busy</b> person so please don't befriend me or even interact with me if you're someone who expects consistent activity/responses from someone else. i block/hide anyone who annoys me.
+      dni if you're scared of art that isn't palatable or commercialised, if you feel threatened by trans people who's identity can't be summarised by reddit femboy memes, or if your politics begin and end with what is 'respectable' and what is 'valid'. i am an <b>extremely busy</b> person so please don't befriend me or even interact with me if you're someone who expects consistent activity/responses from someone else. i block/hide anyone who annoys me.
    <div align="center">
     <div align="center" style="max-width: 300px; margin: 0 auto;">
     <img src="https://i.imgur.com/RmdbaHK.png" width="10%"/>
